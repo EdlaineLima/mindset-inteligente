@@ -1,0 +1,2 @@
+# mindset-inteligente
+Visão Mental
